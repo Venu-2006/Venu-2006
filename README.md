@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me through my email venukesavaraamk@gmail.com
+- 📫 You can reach me through my email venukesavaraamk@gmail.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: iam studying EEE branch and interested in programming 
 
